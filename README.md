@@ -18,6 +18,24 @@ Our mission is to **learn, build, and collaborate** using modern tools like **Gi
   - 👤 Member 2 - Debabrata Karmakar
   - 👤 Member 3 - Ahana Das
   - 👤 Member 4 - Subhankar Bhattacharya
+  - 👤 Member 5 - Sabyasanchi Chakraborty
+  - 👤 Member 6 - Srijon Halder
+  - 👤 Member 7 - Jhilik Roy
+  - 👤 Member 8 - Prasun Kumar Dhar
+  - 👤 Member 9 - Debatosh Dutta
+  - 👤 Member 10 - Nawazsharif Biswas
+  - 👤 Member 11 - Manoj Kumar Rajak
+  - 👤 Member 12 - Aryan Kumar Shaw
+  - 👤 Member 13 - Subrata Pramanik
+  - 👤 Member 14 - Sandeep Hati
+  - 👤 Member 15 - SK Adil
+  - 👤 Member 16 - Mondira Modak
+  - 👤 Member 17 - Anisha Khatun
+  - 👤 Member 18 - Soumadip Roy
+  - 👤 Member 19 - Baidyanath Patra
+  - 👤 Member 20 - Snehasis Paul
+  - 👤 Member 21 - Farhan Reyaz Ansari
+  - 👤 Member 22 - Supriti Bose
 
 ---
 
