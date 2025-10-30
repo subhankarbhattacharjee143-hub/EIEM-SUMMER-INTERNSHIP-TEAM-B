@@ -14,7 +14,8 @@ Our mission is to **learn, build, and collaborate** using modern tools like **Gi
 - **College:** Elitte Institute of Engineering and Management (EIEM)  
 - **Program:** Summer Internship 2025  
 - **Team Members:**  
-  - 👤 Member 1 — MD Asif Hossain  
+  - 👤 Member 1 — MD Asif Hossain
+  - 👤 Member 2 - Debabrata Karmakar
 
 ---
 
